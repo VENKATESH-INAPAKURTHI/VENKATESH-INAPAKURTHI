@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+my name is Venkatesh Inapakurthi. I am a dynamic supply chain leader with over 5 years of experience in logistics, procurement, and vendor management. Currently, I oversee operations at my own plant and three trade plants, managing 7 C&F agents in the Andhra Pradesh region at UltraTech Cement. My key achievements include optimizing freight management, achieving 100% On-Time In-Full (OTIF) deliveries, and reducing procurement costs by 15%. I have a proven track record in team leadership, cost reduction, and operational efficiency. I hold an MBA in Logistics and Supply Chain Management and have been recognized with several awards for my contributions. I am now seeking a managerial role where I can leverage my strategic and operational expertise to drive further success.
 <!--
 **VENKATESH-INAPAKURTHI/VENKATESH-INAPAKURTHI** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
